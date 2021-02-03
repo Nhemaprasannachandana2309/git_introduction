@@ -16,6 +16,6 @@ this is horizontal line
 - tea
 - juice
 
-how to open hyper links [apssdc](https://www.apssdc.in)
+how to open hyper links [apssdc] (https://www.apssdc.in)
 
 [ciet college] (https://chalapathiengg.ac.in)
