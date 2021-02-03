@@ -20,4 +20,4 @@ how to open hyper links [apssdc] (https://www.apssdc.in)
 
 [ciet college] (https://chalapathiengg.ac.in)
 
-![image 1] (https://www.google.com/search?q=datascience+images&rlz=1C1CHZN_enIN937IN937&sxsrf=ALeKk03GlJPq5uTJZVtMhyAkZMuQ2Ml4MQ:1612342144598&tbm=isch&source=iu&ictx=1&fir=n2vyn_9FYhjxqM%252CHoljWg-1z5W88M%252C_&vet=1&usg=AI4_-kQGydc-Fu6iHv1Rh_4q07sAL92nrA&sa=X&ved=2ahUKEwjbuqPGqs3uAhW5zDgGHWlgB8MQ9QF6BAgMEAE#imgrc=n2vyn_9FYhjxqM)
+![image 1] (https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.pinimg.com%2F564x%2Fa8%2Fe7%2F5d%2Fa8e75d62f652ac24224dadc1ac137190.jpg&imgrefurl=https%3A%2F%2Fin.pinterest.com%2Fpin%2F830069775052548726%2F&tbnid=v-P49F5Kfb5l4M&vet=12ahUKEwipw66brM3uAhWWCrcAHSAeCEcQMygnegUIARCgAg..i&docid=R5hKUUH2yqqHlM&w=496&h=431&q=nani&ved=2ahUKEwipw66brM3uAhWWCrcAHSAeCEcQMygnegUIARCgAg)
