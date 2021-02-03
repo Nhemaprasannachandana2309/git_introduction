@@ -20,4 +20,4 @@ how to open hyper links [apssdc] (https://www.apssdc.in)
 
 [ciet college] (https://chalapathiengg.ac.in)
 
-![image 1] (https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.behindwoods.com%2Ftamil-actor%2Fnani%2Fnani-stills-photos-pictures-50.jpg&imgrefurl=https%3A%2F%2Fm.behindwoods.com%2Ftamil-actor%2Fnani%2Fnani-photos-pictures-stills-50.html&tbnid=5T0_s_G-___VzM&vet=10CEoQMyjwAWoXChMIiMfT5K_N7gIVAAAAAB0AAAAAEAM..i&docid=z8Bcr8VobyM4JM&w=596&h=780&q=nani&ved=0CEoQMyjwAWoXChMIiMfT5K_N7gIVAAAAAB0AAAAAEAM)
+![image 1] (https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.behindwoods.com%2Ftamil-actor%2Fnani%2Fnani-stills-photos-pictures-49.jpg&imgrefurl=https%3A%2F%2Fm.behindwoods.com%2Ftamil-actor%2Fnani%2Fnani-photos-pictures-stills-49.html&tbnid=Y8lazfaSgPVOYM&vet=12ahUKEwi_iOG9sc3uAhXf1nMBHWuOCnUQMygAegUIARCUAQ..i&docid=R88VVU9_T8VTIM&w=662&h=780&itg=1&q=nani&hl=en-GB&ved=2ahUKEwi_iOG9sc3uAhXf1nMBHWuOCnUQMygAegUIARCUAQ)
